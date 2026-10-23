@@ -1,2 +1,2 @@
-# Mi-p-gina-Resident-evil-
+# Mi-pagina-Resident-evil-
 Página para el colegio
